@@ -1,0 +1,1 @@
+# Kogo-do-pracy-do-tych-sklep-w-Kaliego-Linuxa.
